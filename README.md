@@ -1,1 +1,0 @@
-# mogolianyaks.github.io
